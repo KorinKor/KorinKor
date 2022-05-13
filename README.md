@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Korin
+- 👀 I’m interested in Programing...
+- 🌱 I’m currently learning How To Make A Cool Discord Bot!
+- 📫 How to reach me kor.korin.com@gmail.co
